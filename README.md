@@ -1,0 +1,2 @@
+# ramzi
+Kizdar kalaisyndar
